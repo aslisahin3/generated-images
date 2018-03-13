@@ -238,6 +238,8 @@ Id. [Image Id](link)
 
 49. [Image 49](https://www.google.com/search?sa=G&hl=en-CH&q=Oil+painting&tbm=isch&tbs=simg:CAQSlQEJlXQgoCGLy8EaiQELEKjU2AQaAggVDAsQsIynCBpiCmAIAxIovh61A7YDphePCasX2AjfCb8euh6UKfAh3yiFI7gn4CH5N7Mq4CiaNRowSIEvtIs3XmumCyI1E4uA56948SR4z-rlYitTTEfHpMLuJckfuQDUNxMySTSyH2hkIAQMCxCOrv4IGgoKCAgBEgTZql5cDA&ved=0ahUKEwiYsMGkwd3ZAhVjDcAKHZsYAJcQwg4IJigA&biw=1536&bih=710)
 
+50. [Image 50] (https://www.google.ch/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwiDr9qus-rZAhUEsaQKHY8LABYQjRwIBg&url=http%3A%2F%2Fartpil.com%2Fhilma-af-klint%2F&psig=AOvVaw2hN6iPJsWbCf1CeCtkFPh7&ust=1521068340674702)
+
 Best
 
 Orçun Gümüş
